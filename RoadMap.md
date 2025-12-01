@@ -8,9 +8,7 @@
 - [ ] 11–13 Aralık → Kapak + iç sayfa tasarımı final (galaksi, yaldız, gizli cep)
 - [ ] 14–18 Aralık → Son okuma + arkadaşlara beta (kahkaha testleri)
 - [ ] 19 Aralık → PDF’ler matbaaya gider
-      • 300 adet normal baskı → 333 TL
-      • 33 adet özel numaralı + pati izli + el yazısı → 777 TL
-      • 20 adet “Ruh Elçisi Paketi” → 999 TL
+      • Tek fiyat: 777.77 TL (tüm paketler)
 - [ ] 20–28 Aralık → Baskı + cilt + yaldız + gizli cep + pati mürekkebi
 - [ ] 20–25 Aralık → Abladan 20 adet altın kaplama krizopras kedi-insan bileklik teslim alınacak
 - [ ] 26–28 Aralık → 120 adet minik krizopras taşı (hediye paketleri + ekstra cebe)
@@ -18,15 +16,9 @@
 - [ ] 31 Aralık 00:01 → Instagram’da satış linki aktif + story patlatma
       “Ruhum indi, hoş geldik 2026”
 
-## PAKETLER – KESİN
+## PAKET – KESİN
 
-1. Normal baskı → 333 TL (kargo dahil)
-2. Özel numaralı (33 adet) → 777 TL  
-   • El yazısı numara + kedi pati izi + minik krizopras taşı
-3. Ruh Elçisi Paketi (sadece 20 adet) → 999 TL  
-   • Numaralı kitap + pati izi  
-   • Ablanın el yapımı altın kaplama + krizopras + 333 kazımalı kedi-insan bileklik  
-   • Ekstra krizopras taşı + şeftali kokulu kuru çiçek + “Kedin de kontratı imzaladı” notu
+Tek fiyat → 777.77 TL (kargo dahil)
 
 ## SATIŞ & HEDİYE
 
