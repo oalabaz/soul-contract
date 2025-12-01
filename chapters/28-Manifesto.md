@@ -1,4 +1,4 @@
-# 27. Ruhun Manifestosu
+# 28. Ruhun Manifestosu
 
 Buraya gelmek bir seçimdi. Belki bilinçli değil, belki planlı değil — ama rastgele de değil.
 

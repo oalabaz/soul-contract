@@ -190,23 +190,23 @@ Yılda bir ay kumsal. Geri kalan on bir ay, o bir ayı hayal ederek geçiyor. Bu
 
 Ya da değil. Belki sürekli kumsal gerçekten cevap ve biz sadece cesaret edemiyoruz.
 
-### Doğru Yol: Starlink'li Güneş Enerjili Bungalov
+### Doğru Yol: 5G'li Güneş Enerjili Bungalov
 
 Ama bir üçüncü yol var. Aydınlanmış yol. Modern zamanların gerçek cevabı.
 
-Olympos. Kumsal kenarı. Güneş panelli bungalov. Starlink anteni çatıda.
+Olympos. Kumsal kenarı. Güneş panelli bungalov. 5G çekiyor zaten.
 
 Bu formül, hindistan cevizi romantizmini 21. yüzyıl gerçekliğiyle birleştiriyor. Deniz var, kum var, güneş var — ama wifi de var. Doğaya dönüş var ama dünyadan kopuş yok.
 
 **Güneş enerjisi**: Elektrik faturası sıfır. Şebeke bağımlılığı sıfır. Güneş zaten orada, sadece topluyorsun.
 
-**Starlink**: Dünyanın her yerinde internet. Uzay'dan gelen wifi, kumsalda çalışmayı mümkün kılıyor. Digital nomad rüyasının teknik altyapısı.
+**5G**: Türkiye'de her dağ başında çekiyor. Telefondan hotspot aç, işini gör. Starlink'e gerek yok, Elon'a para verme.
 
 **Bungalov**: Beton değil, ahşap. Klima değil, deniz esintisi. Asansör değil, üç basamak.
 
 ### Olympos Modeli
 
-Olympos zaten bunu çözmüş. Ağaç evler, plaj barları, gece ateş böcekleri. Elektrik sınırlıydı, şimdi güneş panelleri çoğaldı. İnternet yoktu, şimdi Starlink var.
+Olympos zaten bunu çözmüş. Ağaç evler, plaj barları, gece ateş böcekleri. Elektrik sınırlıydı, şimdi güneş panelleri çoğaldı. İnternet yoktu, şimdi 5G her yerde.
 
 Bu evrim önemli: Doğadan kaçmak için teknoloji değil, doğada kalmak için teknoloji.
 
@@ -215,7 +215,7 @@ Eskiden seçim şuydu:
 - Kumsal: Deniz var, internet yok
 
 Şimdi seçim:
-- Her ikisi de: Starlink + güneş paneli + bungalov = tam paket
+- Her ikisi de: 5G + güneş paneli + bungalov = tam paket
 
 ### Bir Ay Kuralı
 
@@ -267,101 +267,38 @@ Yine de şehri seçti. Karmaşıklığı, insanları, wifi'ı, kahveyi.
 
 Neden? Belki ruh da macera arıyor. Kolay olan değil, ilginç olan.
 
-Ama sözleşmenin arka sayfasında, küçük punto ile bir madde var. Kitabın en önemli maddesi. Belki de tek gerçek maddesi:
+Ama sözleşmenin arka sayfasında, küçük punto ile bir madde var:
 
 ---
 
-## 🥥 GİZLİ MADDE: HİNDİSTAN CEVİZİ ALTERNATİFİ
-
-> **Madde ∞ (Sonsuz):** Taraf (bundan böyle "Ruh" olarak anılacaktır), bu sözleşmedeki tüm maddeleri — sıcak su, kahve, wifi, müzik, kediler, çikolata, şeftali ve diğer tüm şartları — istediği anda, herhangi bir gerekçe göstermeksizin, askıya alma hakkını saklı tutar.
+> **THE GİZLİ MADDE** 
+> 
+> *Bu maddenin detayları için: Madde ∞ — Hindistan Cevizi Alternatifi*
 >
-> Bu askıya alma durumunda Taraf, aşağıdaki "Hindistan Cevizi Alternatifi"ni devreye sokabilir:
-
-### Alternatif Senaryo Şartları:
-
-1. **Konum**: Güneş enerjili, Starlink bağlantılı, kumsal kenarı bungalov. Tercihen Olympos veya eşdeğeri.
-
-2. **Süre**: Minimum bir ay. Maksimum: sınırsız.
-
-3. **Finansal Şart**:
-   - Bir gidiş uçak bileti (dönüş opsiyonel)
-   - Bir aylık tatil masrafları (konaklama + yeme-içme)
-   - Bu kadar. Başka bir şey yok.
-   
-   > *Not: Bu şart, hayatın en basit matematik problemidir. Bir bilet + bir ay masraf = özgürlük. Gerisi mazeret.*
-
-4. **Gereksinimler**:
-   - Deniz (yürüme mesafesinde)
-   - Güneş (günlük minimum 6 saat)
-   - Hindistan cevizi veya eşdeğeri tropik meyve
-   - Starlink veya eşdeğeri uydu interneti
-   - Güneş paneli (şebekeden bağımsızlık için)
-   - Hamak (opsiyonel ama şiddetle tavsiye edilir)
-
-4. **İptal Edilen Yükümlülükler**:
-   - Kira ödeme
-   - Trafik stresine katlanma
-   - Toplantılara katılma
-   - LinkedIn profilini güncelleme
-   - "Beş yıllık plan" yapma
-   - Mevsime göre gardırop değiştirme
-   - Alarm kurma
-
-5. **Korunan Haklar**:
-   - İnternete erişim (dünyayı izlemek için, katılmak için değil)
-   - Kitap okuma
-   - Denize bakarak düşünme
-   - Gün batımını izleme
-   - Hiçbir şey yapmama
-   - Hergun Denize Girebilme ihtimali
-   
-
-### Bu Maddenin Özellikleri:
-
-> *Alt madde ∞.1: Bu hak zamanaşımına uğramaz. 25 yaşında da, 55 yaşında da, 85 yaşında da kullanılabilir.*
-
-> *Alt madde ∞.2: Bu hakkın kullanımı için kimseye hesap verme zorunluluğu yoktur. "Neden?" sorusuna "Çünkü" yanıtı yeterlidir.*
-
-> *Alt madde ∞.3: Bu alternatife geçiş, "başarısızlık", "kaçış" veya "vazgeçme" olarak nitelendirilemez. Aksine, "bilinçli tercih", "stratejik geri çekilme" veya "nihai zafer" olarak tanımlanır.*
-
-> *Alt madde ∞.4: Diğer tüm sözleşme maddeleri (sıcak su, kahve, müzik, vb.) bu alternatif senaryoda da geçerlidir — sadece bungalov versiyonlarıyla.*
-
-> *Alt madde ∞.5: Bu maddenin varlığını bilmek, onu kullanmak kadar değerlidir. Kaçış kapısının açık olduğunu bilmek, hapiste olmadığının kanıtıdır.*
+> *Veya...*
+>
+> 🌴 **"Ruhun Kaçış Planı" — 1 Haftalık Bungalov Eğitimi**
+> 
+> **Fiyat: 777.77 $**
+>
+> *İçerik:*
+> - 7 gece Olympos ağaç ev konaklaması
+> - Günlük gün doğumu meditasyonu (deniz kenarında)
+> - "Sistemi Bırakma" workshop'u
+> - Güneş paneli kurulum temelleri
+> - Kendi bahçeni ekme atölyesi 🌿
+> - Digital detox protokolü (telefon kasada)
+> - Gün batımı sessizlik seansları
+> - Mezuniyet: "Ben de yapabilirim" sertifikası
+>
+> *Kayıt için: Sadece tek yön bilet al ve gel. Geri dönüş bileti opsiyonel.*
+>
+> *Not: Bu eğitimin asıl amacı, eğitime ihtiyacın olmadığını anlamandır.*
 
 ---
 
-### Neden Bu Madde En Önemlisi?
+*"Bazen en iyi plan, planı bırakmaktır."*
 
-Kitap boyunca ruhun şartlarını saydık. Sıcak su, kahve, internet, müzik, hayvanlar, doğa, yürüyüş, uyku... Bunların hepsi güzel. Hepsi gerekli.
+— Ruhun Dünya Gözlemleri, Bölüm 22
 
-Ama hepsinin üstünde bir şart var: **Özgürlük.**
 
-Hindistan Cevizi Alternatifi, özgürlüğün somut hali. "İstersem her şeyi bırakır giderim" bilgisi. Bu bilgi, şehirde kalırken bile rahatlatıyor. Trafikte sıkışırken, toplantıda bunalırken, kış ortasında karanlıkta eve dönerken...
-
-"Ama istersem Olympos'ta bungalovda olabilirdim" düşüncesi, bir tür iç huzur veriyor. Seçim yaptığını bilmek. Mahkum olmadığını bilmek.
-
-### Kullanmayacağımızı Bile Bile
-
-Çoğumuz bu maddeyi hiç kullanmayacak. Şehirde kalacağız, işe gidip geleceğiz, alarm kuracağız, kış aylarını sayacağız.
-
-Ama madde orada duracak. Sözleşmenin arka sayfasında, küçük puntolarla, ama silinmez mürekkeple yazılmış.
-
-Ve belki bir gün — belki emeklilikte, belki büyük bir kırılmadan sonra, belki sadece bir salı sabahı — belki o gün, o maddeyi çekmecedan çıkarıp "Tamam, şimdi" diyeceğiz.
-
-O güne kadar, var olduğunu bilmek yeterli.
-
----
-
-**Kaçış kapısı her zaman açık.**
-
-**Hindistan cevizi her zaman bir uçak bileti uzaklıkta.**
-
-**Bungalov her zaman bekliyor.**
-
-**Ve ruh, bunu bilerek, bugün de şehirde kalmayı seçiyor.**
-
-*Ama yarın? Yarın her şey değişebilir.*
-
-*İşte bu yüzden madde var.*
-
-*İşte bu yüzden bu kitabın en önemli maddesi bu.*
