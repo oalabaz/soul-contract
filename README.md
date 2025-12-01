@@ -47,7 +47,8 @@ ruhumun-dunyaya-inmek-icin-sozlesme-sartlari/
 | 24 | AI (Yapay Zeka): Ruhun Modern Tercümanı | ✅ | ✅ Madde 24 |
 | 25 | Uyku: Ruhun Reset Tuşu | ✅ | ✅ Madde 25 |
 | 26 | Yürüyüş: GPS Kalibrasyonu | ✅ | ✅ Madde 26 |
-| 27 | Son Bölüm: Ruhun Manifestosu | ✅ | — |
+| 27 | Kadınlar: Ruhun Evrensel Çekim Merkezi | 📝 | ✅ Madde 27 |
+| 28 | Son Bölüm: Ruhun Manifestosu | ✅ | — |
 
 ## Öne Çıkan Sözleşme Maddeleri
 
