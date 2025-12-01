@@ -50,3 +50,9 @@ Yani evet—ruhun dünyaya gelme sebebi felsefe değil.
 
 Sadece iyi bir plaj ve güneşli bir gün vaat edilmiş.
 
+---
+
+## Sözleşme Maddesi 1
+
+*"Ruh, su ve güneş olmayan gezegene inmeyecek. Kuru ve karanlık yerlerde garanti geçersiz."*
+

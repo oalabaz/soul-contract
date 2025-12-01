@@ -26,6 +26,10 @@ Toprak, gezegenin hafızası. İçinde milyarlarca yıllık bilgi var. Ruhumun a
 
 Evde en az bir saksı toprak bulundurmak, minimum dünya teması için gerekli. Bu saksıdaki bitki ölse bile (ki genellikle oluyor), toprak yerinde kalmalı. Arada bir parmakları toprağa gömmek, derin nefesle birleştirmek — ofis ortamında bile uygulanabilir mikro ritüel.
 
+## Sözleşme Maddesi 11
+
+*"Ayda en az bir kere çıplak ayakla toprağa basılacak. Asfalt sayılmaz."*
+
 ---
 
 # 6. Su: Ruhun Akış Rehberi
@@ -54,6 +58,10 @@ Bardağı doldururken niyet koymak, suyun yapısını etkiliyor — en azından 
 
 Duş, sadece temizlik değil, günlük sıfırlama. Sabah duşu uyandırır, akşam duşu sakinleştirir. Suyun vücuttan aşağı akmasını izlerken, onunla birlikte günün stresinin de aktığını hayal ediyorum. Bu hayal, gerçeğe dönüşüyor.
 
+## Sözleşme Maddesi 12
+
+*"Ruh, akan suyu seven bir varlıktır. Durgun suda bekler ama akan suda dans eder."*
+
 ---
 
 # 7. Ateş: Ruhun Dönüşüm Motoru
@@ -75,6 +83,10 @@ Yemek pişirirken ocaktaki alev, günlük ateş temasım. Gaz açılır, çakmak
 ## Ateşe Vermek
 
 Kâğıda yazılan endişeleri, eski notları, bitmiş ilişkilerin hatıralarını ateşe vermek — bu ritüel binlerce yıldır var. Yanan kâğıtla birlikte bir şeyler gerçekten gidiyor. Fiziksel nesnenin yok olması, zihinsel bağın kopmasını kolaylaştırıyor.
+
+## Sözleşme Maddesi 13
+
+*"Ateş, geçmişi yakar ve geleceği aydınlatır. İkisini de dengede tutmak, ruhun işi."*
 
 ---
 
@@ -99,6 +111,12 @@ Ben karbondioksit veriyorum, onlar oksijen veriyor. Bu alışveriş, kelimelere 
 ## Bitki Ölümü ve Yas
 
 Bitkiler ölüyor. Bazen ihmalden, bazen kaderden. Kuruyup giden bir bitkiye üzülmek normal. Onu gömmek, teşekkür etmek, yeni bir bitki almak — döngü böyle devam ediyor.
+
+## Sözleşme Maddesi 14
+
+*"En az bir bitki sorumluluğu alınacak. Bitki ölse bile tecrübe sayılır."*
+
+---
 
 ---
 
@@ -129,6 +147,12 @@ Kristaller de şarj istiyor:
 ## Kristalle Çalışmak
 
 Cebe koymak, masada tutmak, yastık altına yerleştirmek — kristalle temas şekli amaca göre değişiyor. Meditasyonda elde tutmak, odaklanmayı kolaylaştırıyor. Hangi kristali seçeceğinizi bilmiyorsanız, gözünüzü kapatıp hangisi sizi çekiyorsa onu alın — ruhunuz biliyor.
+
+## Sözleşme Maddesi 15
+
+*"Kristal taşımak isteğe bağlıdır ama bir kere başladınız mı düzenli temizlik şart."*
+
+---
 
 ---
 
@@ -171,3 +195,7 @@ Kedi besleyemeyenler için alternatifler:
 Kedilerden öğrenilecek en önemli ders: Sınır koymak. Kedi istemediğinde istemez, zorlamaya gelmez. "Hayır" demek için özür borçlu hissetmez. Bu netlik, insanlar için zor ama gerekli bir beceri.
 
 Kediyle yaşamak, günlük ruhsal pratik. Onlar bize insanlığı değil, varlığı öğretiyor. Ve belki de ruhumun bu çağı seçmesinin bir nedeni de buydu: Kedilerle aynı zamanda, aynı mekânda olmak.
+
+## Sözleşme Maddesi 16
+
+*"Kedi kucağına geldiğinde toplantı biter, evren bunu bilir."*

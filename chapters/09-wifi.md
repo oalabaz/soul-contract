@@ -55,3 +55,9 @@ Eve gelen misafirler için ayrı bir ağ oluşturmak, hem güvenlik hem de enerj
 5. Bağlantı geldiğinde, ilk yapacağın şeyi bilinçli seç.
 
 Wi-Fi, ruhumun bu çağa tutunmasını sağlayan görünmez ip. Koparsan düşmem ama sallanırım. Bu sallanmayı minimumda tutmak için modem bakımını aksatmamak gerekiyor — hem teknik hem de ruhsal olarak.
+
+---
+
+## Sözleşme Maddesi 9
+
+*"Şifresiz Wi-Fi cennettir. Şifreli ama paylaşılan Wi-Fi da kabul edilir."*

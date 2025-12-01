@@ -64,3 +64,9 @@ Her gün en az:
 Bu rutini aksatınca fark ediliyor. İç sesler karışıyor, tepkiler keskinleşiyor, sabır azalıyor. Şarj kablosu takılmamış telefon gibi: Gün bitmeden kapanıyor.
 
 Sessizlik lüks değil, zorunluluk. Ruhumun bu çağda hayatta kalma kiti içindeki en önemli malzeme.
+
+---
+
+## Sözleşme Maddesi 10
+
+*"Günde minimum 30 dakika sessizlik. Kulaklık takmak sayılmaz."*

@@ -31,3 +31,9 @@ Tekrar kaynar suya döndüğüm gün, beyaz gürültü çekildi, ruhum iniş pis
 Kupanın çevresinde dönen buharı takip etmek, ruhumun radarını kalibre ediyor. 45 saniyelik bu takip, gün içindeki tüm kararsızlıkları en aza indiriyor. Bunu yapmazsam, haber bültenindeki stok görüntüler gibi hissediyorum: Orada varım ama kimse benim canlı olduğuma ikna değil.
 
 Sonuç basit: Sıcak su sadece içilen bir şey değil, ruhsal iniş izninin kırmızı damgası. Onsuz güne başlamak, pasaport kontrolüne uğramadan ülkeye girmeye kalkmak gibi; herkesi gereksiz yere tedirgin ediyor.
+
+---
+
+## Sözleşme Maddesi 2
+
+*"Günde en az bir sıcak su teması şart. Duş, banyo veya sıcak havlu — biri olacak."*

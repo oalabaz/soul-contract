@@ -40,3 +40,9 @@ Fincan, kahvenin evi. Her fincanın bir kişiliği var ve sabah ruh haline göre
 Son yudum bittikten sonra fincanı hemen bırakmamak gerekiyor. Birkaç saniye daha tutmak, kahvenin bıraktığı enerjiyi mühürlemek için. Fincanın dibindeki kahve telvesi, ruhun günlük haritasını çiziyor — okumayı bilmek şart değil, sadece bakmak bile bir tür meditasyon.
 
 Kahve bitti mi gün başlıyor. Aslında gün çoktan başlamıştı ama şimdi ben de dahil oldum.
+
+---
+
+## Sözleşme Maddesi 4
+
+*"Sabah kahvesiz konuşmaya zorlanan ruh, söylediklerinden sorumlu tutulamaz."*
